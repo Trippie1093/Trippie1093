@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Trippie1093
+- 👀 I’m interested in moding and hacing
+- 📫 How to reach me DM ME ON DISCORD Trippie#1093
